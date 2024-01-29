@@ -1,2 +1,2 @@
-# sovereignty-or-bust
+# empower_humanity
 Deb’s GitHub
