@@ -1,2 +1,2 @@
-# empower_humanity
-Deb’s GitHub
+# Empower Humanity
+Legcay GOLD Lifeline’s GitHub
